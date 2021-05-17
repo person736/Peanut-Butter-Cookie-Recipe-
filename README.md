@@ -1,1 +1,1 @@
-# Peanut-Butter-Cookie-Recipe-
+Peanut Butter Cookies
